@@ -1,12 +1,20 @@
 # 鱼老专用网    鱼老
 ------------------
 ------------------
-炜狗
+炜狗  
+个人网址：https://m.v.huya.com/u/1694651699
 ------------------
-狗牛
+狗牛 
+个人网址：https://mo.mbd.baidu.com/r/1gQuXDQ3Hu8?f=cp&u=9c20e0aa216be2a5
 ------------------
 行牛
+个人网址：https://mmz.liemingwang.com/detail/%E8%A1%8C%E7%89%9B_b0f.html
 ------------------
 牛屎
+个人网址：https://mi.mbd.baidu.com/r/1gQvxRs8THq?f=cp&u=230699349c89f5de
 ------------------
 火包
+个人网址：https://ml.mbd.baidu.com/r/1gQvRXIQipG?f=cp&u=42954f1b2a5efb22
+------------------
+鱼老
+个人网址：
